@@ -1,1 +1,1 @@
-it will be very entaining how vk will contribute
+wc will be interesting to watch when vk starts scoring
