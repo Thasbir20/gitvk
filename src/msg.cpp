@@ -1,1 +1,1 @@
-will vk reach his 70 100 in wc
+most interesting part is to see how vk goes in wc
