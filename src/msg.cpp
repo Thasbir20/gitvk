@@ -1,1 +1,1 @@
-most interesting part is to see how vk goes in wc
+how good vk is gonna be in wc
