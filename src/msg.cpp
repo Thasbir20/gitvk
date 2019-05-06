@@ -1,1 +1,1 @@
-its gonna be interesting in wc
+it will be very entaining how vk will contribute
