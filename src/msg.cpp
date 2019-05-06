@@ -1,1 +1,1 @@
-wc will be interesting to watch when vk starts scoring
+will vk reach his 70 100 in wc
